@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Ghulam hadi
+- 👀 I’m interested in cyber law  ...
+- 🌱 I’m currently learning computer science ...
+  
+
+
